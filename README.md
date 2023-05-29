@@ -1,0 +1,1 @@
+# ymg-donem-projesi-ilkerkse
